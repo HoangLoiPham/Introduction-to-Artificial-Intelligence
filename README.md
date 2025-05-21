@@ -1,1 +1,1 @@
-# Nh-p-m-n-x--l---nh-s-
+# Nhập Môn xử lý ảnh số
