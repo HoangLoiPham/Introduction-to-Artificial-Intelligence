@@ -60,6 +60,74 @@ kết quả
 
 ![image](https://github.com/user-attachments/assets/7117556c-e485-4015-a965-1884d315b0c1)
 
+Bài 3 
+
+![image](https://github.com/user-attachments/assets/54f3aea3-9104-48fe-b318-6cf6636aebc0)
+
+![image](https://github.com/user-attachments/assets/6850d355-5294-43a1-9dd0-ec0d2180dad2)
+
+![image](https://github.com/user-attachments/assets/439de211-3bea-4790-ab6a-2a5cb172057e)
+
+![image](https://github.com/user-attachments/assets/7acd47ea-8d02-47ea-b77b-4a5490026779)
+
+![image](https://github.com/user-attachments/assets/1c78cc80-be75-47b3-bf74-4003b4bf6c5b)
+
+kết quả 
+
+![image](https://github.com/user-attachments/assets/8062a051-f8b1-481c-a664-eba7b51fbed6)
+
+Bài 4 
+
+![image](https://github.com/user-attachments/assets/3be99873-7ad5-4ff0-9bf5-99a5832c5d45)
+
+
+![image](https://github.com/user-attachments/assets/cc147f5d-70fe-433a-b097-903d2b3695fc)
+
+![image](https://github.com/user-attachments/assets/597ac510-8d08-43d2-b2b7-34560467cba8)
+
+kết quả 
+
+![image](https://github.com/user-attachments/assets/bb6751e9-2c6d-445d-8fd0-bb9df3601d39)
+
+Bài 5 
+
+![image](https://github.com/user-attachments/assets/1d034f4c-ceb1-49c2-bdbd-b7bd8d023743)
+
+![image](https://github.com/user-attachments/assets/3554ea24-0c40-4c66-a602-084a843c19f1)
+
+![image](https://github.com/user-attachments/assets/83b4aa11-899a-4512-9dee-0f43f75aa084)
+
+![image](https://github.com/user-attachments/assets/8012338f-7ca8-4bc2-8693-155443ad199e)
+
+![image](https://github.com/user-attachments/assets/bfc00209-d2a9-4e29-a1a8-59c8f7fd1fd5)
+
+![image](https://github.com/user-attachments/assets/e0305fd2-ad70-4818-adbb-acd8e1b9ac7b)
+
+![image](https://github.com/user-attachments/assets/5a4a233b-13fb-4742-80a2-194d18836628)
+
+kết quả 
+
+![image](https://github.com/user-attachments/assets/9deed062-d76c-415d-8032-93abcb9cdb12)
+
+![image](https://github.com/user-attachments/assets/f47b3a72-8fbf-48cd-8a79-7f498349eb45)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
